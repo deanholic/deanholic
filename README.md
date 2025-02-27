@@ -1,6 +1,6 @@
 <div align="center">
   <img src="https://cdn.discordapp.com/attachments/1276918902139392013/1338569602216759337/Untitled22_20250210175732.png?ex=67ab8f96&is=67aa3e16&hm=df203b4ab938142eb7c5b5c406c88563bb7cc44117f57016e8865fc90364f442&"> <br/>
-HEY!! call me rowan (or zak) <br/>
+HEY!! call me rowan (or zack) <br/>
 currently hyperfixated on supernatural & mob psycho 100
 </div>
 <hr/>

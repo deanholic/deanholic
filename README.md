@@ -1,7 +1,7 @@
 <div align="center">
 heya, welcome 2 my page <br/>
 u can call me rowan . zak . dean . ben or whatever u like <br/>
-supernatural, dexter and hannibal addict
+supernatural, dexter, the boys and hannibal addict
 </div>
 <div align="center">
   <img src="https://files.catbox.moe/htqi8l.png">

@@ -1,7 +1,9 @@
 <div align="center">
 heya, welcome 2 my page ᵔᴗᵔ<br/>
 u can call me rowan . zak . dean . ben or whatever u like <br/>
-supernatural, dexter, the boys and hannibal addict
+supernatural, dexter, the boys and hannibal addict <br/>
+! c+h always, w2i & dncuf ! <br/>
+<sub>(dncuf = do not cover unless friends)</sub>
 </div>
 <div align="center">
   <img src="https://files.catbox.moe/htqi8l.png">

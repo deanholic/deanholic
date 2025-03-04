@@ -1,6 +1,5 @@
 <div align="center">
 heya, welcome 2 my page ᵔᴗᵔ<br/>
-u can call me rowan . zak . dean . ben or whatever u like <br/>
 supernatural, dexter, the boys and hannibal addict <br/>
 ! c+h always, w2i & dncuf ! <br/>
 <sub>(dncuf = do not cover unless friends)</sub>
@@ -12,6 +11,7 @@ supernatural, dexter, the boys and hannibal addict <br/>
 
 <p align="center">
   <b>🎸⋆⭒˚｡⋆</b><br>
+u can call me rowan . zak . dean . ben or whatever u like <br/>
   <a href="https://discord.com/users/807377994557554769">discord</a> |
   <a href="https://pronouns.cc/@americasson">prns cc</a> |
   <a href="#">more info soon</a>

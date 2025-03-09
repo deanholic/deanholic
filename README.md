@@ -11,7 +11,7 @@ supernatural, dexter, the boys and hannibal addict <br/>
 
 <p align="center">
   <b>🎸⋆⭒˚｡⋆</b><br>
-u can call me rowan . zak . dean . ben or whatever u like <br/>
+u can call me rowan . zak . dean . or any name on my prns cc <br/>
   <a href="https://discord.com/users/807377994557554769">discord</a> |
   <a href="https://pronouns.cc/@americasson">prns cc</a> |
   <a href="https://zakhoundgang.straw.page">strawpg</a>

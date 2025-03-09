@@ -5,7 +5,7 @@ supernatural, dexter, the boys and hannibal addict <br/>
 <sub>(dncuf = do not cover unless friends)</sub>
 </div>
 <div align="center">
-  <img src="https://files.catbox.moe/htqi8l.png">
+  <img src="https://files.catbox.moe/5eyf5b.png">
 </div>
 
 

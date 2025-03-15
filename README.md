@@ -2,7 +2,7 @@
 " and ill pull your crooked teeth " <br/>
 <b>⋆⭒˚｡⋆</b><br>
 </div>
-<div align="left">
+<div align="center">
   <img src="https://files.catbox.moe/m7507j.png"> 
 </div>
 

@@ -11,7 +11,7 @@
   <b>⋆⭒˚｡⋆</b><br>
 " you'll be perfect just like me " <br/>
   <a href="https://discord.com/users/807377994557554769">discord</a> |
-  <a href="https://pronouns.cc/@americasson">prns cc</a> |
+  <a href="https://pronouns.cc/@thebends">prns cc</a> |
   <a href="https://zakhoundgang.straw.page">strawpg</a> |
   <a href="https://meownnibal.atabook.org">ata</a> <br/>
 <sub>click 4 info</sub>

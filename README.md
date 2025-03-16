@@ -3,7 +3,7 @@
 <b>⋆⭒˚｡⋆</b><br>
 </div>
 <div align="center">
-  <img src="https://files.catbox.moe/m7507j.png"> 
+  <img src="https://files.catbox.moe/p236ga.png"> 
 </div>
 
 

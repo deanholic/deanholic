@@ -1,15 +1,14 @@
 <div align="center">
-" and ill pull your crooked teeth " <br/>
 <b>⋆⭒˚｡⋆</b><br>
 </div>
 <div align="center">
-  <img src="https://files.catbox.moe/p236ga.png"> 
+  <img src="https://i.pinimg.com/736x/68/76/34/687634dc38d7e418c85ddbed3a1b3593.jpg"> 
 </div>
 
 
 <p align="center">
   <b>⋆⭒˚｡⋆</b><br>
-" you'll be perfect just like me " <br/>
+" Little ass kicker, that's a good name, right? " <br/>
   <a href="https://discord.com/users/807377994557554769">discord</a> |
   <a href="https://pronouns.cc/@thebends">prns cc</a> |
   <a href="https://zakhoundgang.straw.page">strawpg</a> |

@@ -1,12 +1,9 @@
-<div align="center">
-<b>⋆⭒˚｡⋆</b><br>
+
 </div>
 <div align="center">
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31mc5dbs4bh6qyye5trc4h765lzq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=73ff00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 </div>
-
-
 <p align="center">
   <b>⋆⭒˚｡⋆</b><br>
 " Little ass kicker, that's a good name, right? " <br/>

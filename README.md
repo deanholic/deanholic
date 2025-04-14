@@ -9,6 +9,6 @@
 " I am all the days that you choose to ignore . " <br/>
   <a href="https://discord.com/users/807377994557554769">discord</a> |
   <a href="https://pronouns.cc/@thursdayangel">prns cc</a> |
-  <a href="#">strawpg</a> | <br/>
+  <a href="#">strawpg</a> <br/>
 <sub>click 4 info</sub>
 

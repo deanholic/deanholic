@@ -1,3 +1,7 @@
+</div
+<div align="center">
+
+![](https://komarev.com/ghpvc/?username=spiritualmutt&abbreviated=true&color=green&label=✧+,+)
 
 </div>
 <div align="center">

@@ -13,5 +13,4 @@
 " I am all the days that you choose to ignore . " <br/>
   <a href="https://pronouns.cc/@thursdayangel">prns cc</a> <br/>
 <sub>remaking straw... soon... at some point</sub> <br/>
-<sub>click 4 info</sub>
 

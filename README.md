@@ -11,6 +11,6 @@
 <p align="center">
   <b>⋆⭒˚｡⋆</b><br>
 " I am all the days that you choose to ignore . " <br/>
+  <a href="https://zetrickster.straw.page">strawpg</a> |
   <a href="https://pronouns.cc/@thursdayangel">prns cc</a> <br/>
-<sub>remaking straw... soon... at some point</sub> <br/>
 

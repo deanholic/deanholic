@@ -5,7 +5,6 @@
 <p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://files.catbox.moe/d96qq9.png" style="max-width: 100%;"></a>
 </p>
 <p align="center" dir="auto"> w2i is encouraged, c+h always and dncuf <br/>
-might go non-verbal / semi-verbal around people idk well <br/>
 <sub>dncuf = do not cover unless friends</sub> <br/>
 </p>
 <p align="center" dir="auto"><b><a href="https://jensenlings.atabook.org/" rel="nofollow">atabook</a> &nbsp; <a href="https://linktr.ee/jensenlings" rel="nofollow">linktree</a></b></p>

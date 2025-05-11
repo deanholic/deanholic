@@ -2,7 +2,7 @@
 <p align="center" dir="auto"> <b> You cant have no fun with an unloaded gun ,</b>
 </p>
 </p>
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://files.catbox.moe/d96qq9.png" style="max-width: 100%;"></a>
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.pinimg.com/originals/bb/1e/09/bb1e09226230d990cf832c7d7e8704e7.gif" style="max-width: 100%;"></a>
 </p>
 <p align="center" dir="auto"> w2i is encouraged, c+h always and dncuf <br/>
 <sub>dncuf = do not cover unless friends</sub> <br/>

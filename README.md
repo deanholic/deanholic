@@ -6,7 +6,7 @@
 </p>
 <p align="center" dir="auto"> <ins>w2i</ins> as im mostly offtab/afk when im not w/ my friends <br/>
 c+h always and dont cover unless friends :) <br/>
-  @HEX-T3CH <- brotha from anotha motha check him out he's cool. Ok?
+  <sub>ask 4 my discord and u will probably recieve ;)</sub>
 </p>
 <p align="center" dir="auto"><b><a href="https://jensenlings.atabook.org/" rel="nofollow">atabook</a> &nbsp; <a href="https://linktr.ee/jensenlings" rel="nofollow">linktree</a></b></p>
 <p align="center" dir="auto">

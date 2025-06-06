@@ -8,7 +8,7 @@
 <ins>w2i</ins> as im mostly offtab/afk. <br/>
   <sub>ask 4 my discord and u will probably recieve (if u ask nicely) </sub>
 </p>
-<p align="center" dir="auto"><b><a href="https://jensenlings.atabook.org/" rel="nofollow">atabook</a> &nbsp; <a href="https://rentry.co/jenhoundgang" rel="nofollow">rentry</a> &nbsp; <a href="https://deathofthejedi.straw.page/" rel="nofollow">straw</a></b></p>
+<p align="center" dir="auto"><b><a href="https://jensenlings.atabook.org/" rel="nofollow">atabook</a> &nbsp; <a href="https://rentry.co/jenhoundgang" rel="nofollow">rentry</a> &nbsp; <a href="https://jackass4ever.straw.page/" rel="nofollow">straw</a></b></p>
 <p align="center" dir="auto">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3144t4e3cclfn2vqfpxbzp5hkqga&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=334833&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)" style="max-width: 100%;"></a>
 <p align="center" dir="auto"> <b> My dad says thats for pussies ! </b>

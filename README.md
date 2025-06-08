@@ -6,6 +6,7 @@
 </p>
 <p align="center" dir="auto"> 
 <ins>w2i</ins> as im mostly offtab/afk. <br/>
+i ❤️ spn & jackass <br/>
   <sub>ask 4 my discord and u will probably recieve (if u ask nicely) </sub>
 </p>
 <p align="center" dir="auto"><b><a href="https://jensenlings.atabook.org/" rel="nofollow">atabook</a> &nbsp; <a href="https://rentry.co/jenhoundgang" rel="nofollow">rentry</a> &nbsp; <a href="https://jackass4ever.straw.page/" rel="nofollow">straw</a></b></p>

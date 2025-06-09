@@ -6,6 +6,7 @@
 </p>
 <p align="center" dir="auto"> 
 <ins>w2i</ins> as im mostly offtab/afk. <br/>
+SIGN ATA AND DRAW ON STRAW!!! <br/>
 i ❤️ spn & jackass <br/>
   <sub>ask 4 my discord and u will probably recieve (if u ask nicely) </sub>
 </p>

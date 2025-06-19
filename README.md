@@ -5,7 +5,7 @@
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3144t4e3cclfn2vqfpxbzp5hkqga&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=334833&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)" style="max-width: 100%;"></a>
 <p align="center" dir="auto"><b><a href="https://jensenlings.atabook.org/" rel="nofollow">atabook</a> &nbsp; <a href="https://rentry.co/jenhoundgang" rel="nofollow">rentry</a> &nbsp; <a href="https://jackass4ever.straw.page/" rel="nofollow">straw</a></b></p>
 <p align="center" dir="auto"> 
-YO! im jensen.. i like spn & jackass. <sub>and blink-182.. </sub>A lot. <br/>
+YO! im jensen.. i like spn, jackass & blink-182. A lot. <br/>
 HEAVY. dean winchester kin. Hes me. <br/>
 w2i, c+h always, dncuf yada yada. <br/>
 Just Check Out My Links. Ok?

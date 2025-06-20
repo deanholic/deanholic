@@ -1,7 +1,7 @@
 <p align="center" dir="auto"><img src="https://komarev.com/ghpvc/?username=jensenlings&amp;color=green&amp;style=plastic&amp;label=👽" style="max-width: 100%;"></a>
 <p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://files.catbox.moe/bekp4v.png" style="max-width: 100%;"></a>
 </p>
-<p align="center" dir="auto"><b><a href="https://jensenlings.atabook.org/" rel="nofollow">atabook</a> &nbsp; <a href="https://rentry.co/jenhoundgang" rel="nofollow">rentry</a> &nbsp; <a href="https://jackass4ever.straw.page/" rel="nofollow">straw</a></b></p>
+<p align="center" dir="auto"><b><a href="https://jensenlings.atabook.org/" rel="nofollow">atabook</a> &nbsp; <a href="https://rentry.co/jenhoundgang" rel="nofollow">rentry</a> &nbsp; <a href="https://antlerfright.straw.page/" rel="nofollow">straw</a></b></p>
 <p align="center" dir="auto"> 
 cuds & hiding is welcomed even if it isnt in my name <br/>
 w2i / sign ata to interact as im usually offtab <br/>

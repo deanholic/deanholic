@@ -1,6 +1,6 @@
 <p align="center" dir="auto"><img src="https://komarev.com/ghpvc/?username=jensenlings&amp;color=grey&amp;style=plastic&amp;label=❗️❗️" style="max-width: 100%;"></a>
 <p align="center" dir="auto"> 
-<b>in⠀ my⠀ eyes ⠀,⠀ indisposed</b>
+<b>in⠀ my⠀ eyes ⠀⠀<sub>,</sub>⠀⠀ indisposed</b>
 </p>
 <p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://files.catbox.moe/2odaor.png" style="max-width: 100%;"></a>
 </p>

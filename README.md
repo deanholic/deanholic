@@ -1,4 +1,4 @@
-<p align="center" dir="auto"><img src="https://komarev.com/ghpvc/?username=jensenlings&amp;color=grey&amp;style=plastic&amp;label=🐶" style="max-width: 100%;"></a>
+
 <p align="center" dir="auto"> 
 <b>i'm⠀ so⠀ high⠀ that⠀⠀ i've⠀ lost⠀ my⠀ ⠀mind </b>
 </p>

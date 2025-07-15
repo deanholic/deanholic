@@ -1,6 +1,6 @@
 <p align="center" dir="auto"><img src="https://komarev.com/ghpvc/?username=jensenlings&amp;color=grey&amp;style=plastic&amp;label=🐶" style="max-width: 100%;"></a>
 <p align="center" dir="auto"> 
-<b>im⠀ so⠀ high⠀ that⠀⠀ i've⠀ lost⠀ my⠀ ⠀mind </b>
+<b>i'm⠀ so⠀ high⠀ that⠀⠀ i've⠀ lost⠀ my⠀ ⠀mind </b>
 </p>
 <p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://64.media.tumblr.com/291e2c0e65ff5901348f3f33bc93dce3/42a5bb82a108d0f7-3c/s400x600/bb3b65c8b21c91863aed1c61d5865fb5425b0f8a.gifv" style="max-width: 100%;"></a>
 </p>

@@ -1,6 +1,7 @@
 
 <p align="center" dir="auto"> 
-<b>i'm⠀ so⠀ high⠀ that⠀⠀ i've⠀ lost⠀ my⠀ ⠀mind </b>
+<b> the⠀ day⠀ will⠀ come⠀⠀ they⠀ finally⠀ kill⠀ ⠀me </b> </br>
+<sub>- Cemetery  by  Sematary.</sub>
 </p>
 <p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://files.catbox.moe/4wnr94.webp" style="max-width: 100%;"></a>
 </p>

@@ -2,7 +2,7 @@
 <p align="center" dir="auto"> 
 <b>i'm⠀ so⠀ high⠀ that⠀⠀ i've⠀ lost⠀ my⠀ ⠀mind </b>
 </p>
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://64.media.tumblr.com/291e2c0e65ff5901348f3f33bc93dce3/42a5bb82a108d0f7-3c/s400x600/bb3b65c8b21c91863aed1c61d5865fb5425b0f8a.gifv" style="max-width: 100%;"></a>
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://files.catbox.moe/4wnr94.webp" style="max-width: 100%;"></a>
 </p>
 <p align="center" dir="auto"> 
 cuds & hiding is <b><ins>welcomed</ins></b> even if it isnt in my name </br>

@@ -1,14 +1,14 @@
 
 <p align="center" dir="auto"> 
-<b> why⠀ can't⠀ we⠀ laugh⠀ now⠀ like⠀ we⠀ did⠀ then ? </b> </br>
+<sub> <b> can⠀ you⠀ save⠀ my⠀ heavy⠀ dirty⠀ soul ? </b> </sub> </br>
 
 </p>
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.pinimg.com/originals/60/b0/9d/60b09d98ffa4ea9178bfa20df6594e68.gif" style="max-width: 100%;"></a>
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.pinimg.com/originals/55/cf/9a/55cf9a87378b5b2ddfa273f9d93899b5.gif" style="max-width: 100%;"></a>
 </p>
 <p align="center" dir="auto"> 
-cuds & hiding is <b><ins>welcomed</ins></b> even if it isnt in my name </br>
-⠀<br/>
-w2i ﾉ sign ata ⠀︵⠀ im usually offtab <br/>
+<sub>cuds & hiding is <b><ins>welcomed</ins></b> even if it isnt in my name</sub> </br>
+</br>
+<sub>w2i ﾉ sign ata ⠀︵⠀ im usually offtab</sub> <br/>
 </p>
 <p align="center" dir="auto">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3144t4e3cclfn2vqfpxbzp5hkqga&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=334833&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)" style="max-width: 100%;"></a>

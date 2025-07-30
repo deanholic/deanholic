@@ -3,7 +3,7 @@
 <b> why⠀ can't⠀ we⠀ laugh⠀ now⠀ like⠀ we⠀ did⠀ then ? </b> </br>
 
 </p>
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://files.catbox.moe/2w47s1.gif" style="max-width: 100%;"></a>
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://files.catbox.moe/k5zk0m.gif" style="max-width: 100%;"></a>
 </p>
 <p align="center" dir="auto"> 
 cuds & hiding is <b><ins>welcomed</ins></b> even if it isnt in my name </br>

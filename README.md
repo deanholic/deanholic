@@ -1,9 +1,9 @@
 
 <p align="center" dir="auto"> 
-<b> the⠀ day⠀ will⠀ come⠀⠀ they⠀ finally⠀ kill⠀ ⠀me </b> </br>
-<sub>- Cemetery  by  Sematary.</sub>
+<b> why can't we laugh now like we did then ? </b> </br>
+
 </p>
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://files.catbox.moe/4wnr94.webp" style="max-width: 100%;"></a>
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://files.catbox.moe/9cmet1.gif" style="max-width: 100%;"></a>
 </p>
 <p align="center" dir="auto"> 
 cuds & hiding is <b><ins>welcomed</ins></b> even if it isnt in my name </br>

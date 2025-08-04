@@ -1,6 +1,6 @@
 
 <p align="center" dir="auto"> 
- <sub> <b> we⠀ are⠀ pantera⠀ fans⠀ in⠀ love⠀  ! </b> </sub>  </br>
+ <sub> <b> cuz⠀ im⠀ all⠀ wound⠀ up⠀ &⠀ short⠀ on⠀ time  ! </b> </sub>  </br>
 
 </p>
 <p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.pinimg.com/originals/02/4b/18/024b184b64e6e07a326addaab794db66.gif" style="max-width: 100%;"></a>

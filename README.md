@@ -1,9 +1,9 @@
 
 <p align="center" dir="auto"> 
-<sub> <b> can⠀ you⠀ save⠀ my⠀ heavy⠀ dirty⠀ soul ? </b> </sub> </br>
+ <sub> <b> we⠀ are⠀ pantera⠀ fans⠀ in⠀ love⠀  ! </b> </sub>  </br>
 
 </p>
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.pinimg.com/originals/55/cf/9a/55cf9a87378b5b2ddfa273f9d93899b5.gif" style="max-width: 100%;"></a>
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.pinimg.com/originals/02/4b/18/024b184b64e6e07a326addaab794db66.gif" style="max-width: 100%;"></a>
 </p>
 <p align="center" dir="auto"> 
 <sub>cuds & hiding is <b><ins>welcomed</ins></b> even if it isnt in my name</sub> </br>

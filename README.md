@@ -2,7 +2,7 @@
 <p align="center" dir="auto"> 
 
 </p>
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.pinimg.com/originals/02/4b/18/024b184b64e6e07a326addaab794db66.gif" style="max-width: 100%;"></a>
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://files.catbox.moe/vpp447.png" style="max-width: 100%;"></a>
 </p>
 <p align="center" dir="auto"> 
 <sub>cuds & hiding is <b><ins>welcomed</ins></b> even if it isnt in my name</sub> </br>

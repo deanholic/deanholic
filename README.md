@@ -5,7 +5,7 @@
 <p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://files.catbox.moe/urnnc0.jpg" style="max-width: 100%;"></a>
 </p>
 <p align="center" dir="auto">
-<sub><b>dean, jensen or rex.</b> <br/>
+<sub><b>dean, ethan or rex.</b> <br/>
 he/him, 14. exfriends dni.</sub>
 </p>
 <p align="center" dir="auto">

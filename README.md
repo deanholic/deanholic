@@ -1,6 +1,6 @@
 
 <p align="center" dir="auto"> 
-<sub>  ‎   ‎ ‎ ‎ ‎ d.w enthusiast   </sub>
+<sub>  ‎   ‎ im normal abt spn, twd & re8   </sub>
 </p> ‎ ‎ 
 <p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/9MfLrJ5K/Untitled78-20250927161501.png" style="max-width: 100%;"></a>
 </p>

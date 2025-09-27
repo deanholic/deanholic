@@ -1,6 +1,6 @@
 
 <p align="center" dir="auto"> 
-<sub>  ‎ 𓏼  ‎ ‎ ‎ ‎ a fucking pocket knife ?  . </sub>
+<sub>  ‎   ‎ ‎ ‎ ‎ d.w enthusiast   </sub>
 </p> ‎ ‎ 
 <p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/9MfLrJ5K/Untitled78-20250927161501.png" style="max-width: 100%;"></a>
 </p>

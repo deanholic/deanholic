@@ -2,7 +2,7 @@
 <p align="center" dir="auto"> 
 <img src="https://komarev.com/ghpvc/?username=deanholic&style=plastic&label=stalkers&color=000000">
 </p> ‎ ‎ 
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/Pf3NhZkY/7b583f6ad52152903c6fca88a1de8785.jpg" style="max-width: 100%;"></a>
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/GmTBKcCd/10c4f649df2c70a691807847364b73b6.gif" style="max-width: 100%;"></a>
 </p>
 <p align="center" dir="auto">
 </p>

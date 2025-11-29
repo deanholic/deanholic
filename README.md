@@ -1,6 +1,6 @@
 
 <p align="center" dir="auto"> 
-<img src="https://komarev.com/ghpvc/?username=deanholic&style=plastic&label=stalkers&color=yellow">
+<img src="https://komarev.com/ghpvc/?username=deanholic&style=plastic&label=stalkers&color=000000">
 </p> ‎ ‎ 
 <p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/Kz2p2mpS/tumblr-2117da6a4ad62492a0cb989cd3bc65b6-4473c838-1280.jpg" style="max-width: 100%;"></a>
 </p>

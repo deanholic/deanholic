@@ -5,7 +5,7 @@
 <p align="center" dir="auto"> 
   <sub><b>Some will die in hot pursuit in fiery auto crashes,</b> <br/>
   <b>Some will die in hot pursuit while sifting through my ashes.</b></sub>‎
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/rFqKVdP8/tumblr-093386c3090e7eb72943631cde9a40ee-8ea15ff2-540-removebg-preview.png" style="max-width: 100%;"></a>
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/tT04L76G/tumblr-093386c3090e7eb72943631cde9a40ee-8ea15ff2-540-removebg-preview.png" style="max-width: 100%;"></a>
 </p>
   <p align="center" dir="auto">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3144t4e3cclfn2vqfpxbzp5hkqga&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=787878&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)" style="max-width: 100%;"></a>

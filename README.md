@@ -3,8 +3,8 @@
 <img src="https://komarev.com/ghpvc/?username=deanholic&style=plastic&label=stalkers&color=000000">
 </p> 
 <p align="center" dir="auto"> 
-  <sub><b>Some will die in hot pursuit in fiery auto crashes,</b> <br/>
-  <b>Some will die in hot pursuit while sifting through my ashes.</b></sub>‎
+  <sub><b>Goodbye, my friend,</b> <br/>
+  <b>It's hard to die.</b></sub>‎
 <p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/tT04L76G/tumblr-093386c3090e7eb72943631cde9a40ee-8ea15ff2-540-removebg-preview.png" style="max-width: 100%;"></a>
 </p>
   <p align="center" dir="auto">
